@@ -11,3 +11,5 @@
 [啄木鸟的真相](https://www.sohu.com/a/302475577_223169)
 
 [昆虫的两性冲突](https://www.guokr.com/article/438128/?page=4)
+
+[种内杀婴] (https://en.wiki.52qu.xyz/wiki/Infanticide_(zoology) )
