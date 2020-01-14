@@ -8,8 +8,8 @@
 
 我是复旦大学生命科学学院毕业的，现在也在那里工作。在深入接触生命科学的二十年里，深深映入我心灵的不是儿童读物里宣传的生命之和谐美好，而是生命之残酷。可以说，生命为了活下去以及繁殖，是不择手段的。
 
-[啄木鸟的真相](https://www.sohu.com/a/302475577_223169)
+[啄木鸟的真相] https://www.sohu.com/a/302475577_223169 
 
-[昆虫的两性冲突](https://www.guokr.com/article/438128/?page=4)
+[昆虫的两性冲突] https://www.guokr.com/article/438128/?page=4
 
-[种内杀婴] (https://en.wiki.52qu.xyz/wiki/Infanticide_(zoology) )
+[种内杀婴] https://en.wiki.52qu.xyz/wiki/Infanticide_(zoology)
