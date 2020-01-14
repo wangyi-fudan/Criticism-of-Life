@@ -1,2 +1,3 @@
-# criticism-of-life
-生命的批判
+# 生命的批判
+
+
